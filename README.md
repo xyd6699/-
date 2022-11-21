@@ -2,7 +2,7 @@
 
 ### 点击以下链接进入下载页：
 
-### [LDDD147.COM](http://lddd147.com)<br>
+### [LDDD147.COM](https://lddd147.com)<br>
 
 
 ### 注册邀请码：5483786
