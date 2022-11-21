@@ -2,9 +2,9 @@
 
 ### 点击以下链接进入下载页：
 
-### [LDDD40.COM](http://bbor666.vip)<br>
+### [LDDD40.COM](http://lddd40.com)<br>
 
-### [LD3.ME](http://bbor666.me)<br>
+### [LD3.ME](http://ld.me)<br>
 
 
 ### 注册邀请码：5483786
