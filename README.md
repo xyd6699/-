@@ -2,7 +2,7 @@
 
 ### 点击以下链接进入下载页：
 
-### [LD1.vip.COM](http://ld1.vip)<br>
+### [LD1.vip.](http://ld1.vip)<br>
 
 
 ### 注册邀请码：5483786
