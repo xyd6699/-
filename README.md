@@ -1,16 +1,13 @@
-# 易倍体育最新下载地址（2022年11月10日更新）
+#乐动体育最新下载地址（2022年11月22日更新）
 
 ### 点击以下链接进入下载页：
 
-### [bbor666.vip](http://bbor666.vip)<br>
+### [LDDD40.COM](http://bbor666.vip)<br>
 
-### [bbor666.me](http://bbor666.me)<br>
-H5地址
+### [LD3.ME](http://bbor666.me)<br>
 
-88bros.com<br>
-98bro.com<br>
 
-bbor666.cc<br>
+### 注册邀请码：5483786
 
 # 易倍体育回家页简介
 
@@ -23,8 +20,7 @@ bbor666.cc<br>
 2.其它安卓手机可以进入设置——更多设置——安全——关闭未知来源即可正常下载安装。<br>
 
 
-![avatar](https://static.runoob.com/images/demo/demo1.jpg)
-苹果企业证书掉了导致无法正常使用（无法点击信任企业证书）<br>
+# 苹果企业证书掉了导致无法正常使用（无法点击信任企业证书）<br>
 
 ### 解决办法：
 
