@@ -2,7 +2,7 @@
 
 ### 点击以下链接进入下载页：
 
-### [LDDD1888.COM](http://lddd888.com)<br>
+### [LDDD888.COM](http://lddd888.com)<br>
 
 
 ### 注册邀请码：5483786
