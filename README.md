@@ -2,9 +2,7 @@
 
 ### 点击以下链接进入下载页：
 
-### [LDDD40.COM](http://lddd40.com)<br>
-
-### [LD3.ME](http://ld.me)<br>
+### [LDDD40.COM](https://lddd5.com/download?key=5483786)<br>
 
 
 ### 注册邀请码：5483786
